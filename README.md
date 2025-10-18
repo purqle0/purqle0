@@ -3,7 +3,7 @@
 
 . ݁　　
 
-![image alt](7a98413dbf3b22a08914cb78f4064a36.gif) 
+ 
 
 .𖥔 ݁ ˖　　I am from the Philippines! (South)  　　 07. 10　　　 ๋ ㅤ 🎶　　　
 
