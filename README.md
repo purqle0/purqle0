@@ -1,16 +1,24 @@
-## Hi there 👋
+# Birds Dont Sing.
+⋆˚࿔　Hi!! I am AJ, you can call me Aen, you can give me nicknames! 
 
-<!--
-**purqle0/purqle0** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+. ݁　　
 
-Here are some ideas to get you started:
+![image alt](7a98413dbf3b22a08914cb78f4064a36.gif) 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+.𖥔 ݁ ˖　　I am from the Philippines! (South)  　　 07. 10　　　 ๋ ㅤ 🎶　　　
+
+¬¬°⠀⠀⠀Also! Im not comfortable saying my age,sometimes people look down at me.
+
+ˎ　　
+
+i speak Ilocano and English, but my English is kind of broken so im learning still..
+
+ 🎵
+
+INFJ! / ISFP !!　;　
+
+　　﹒　　
+
+: D⠀ . Purple / Red fictkin! ^_^
+
+I LOVE love love Daukey, Karuta, Caseoh, 3FS and etc youtubers!! ^_^
