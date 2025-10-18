@@ -19,6 +19,6 @@ INFJ! / ISFP !!　;　
 
 　　﹒　　
 
-: D⠀ . Purple / Red fictkin! ^_^
+: D⠀ . Purple / Red fictkin! (^ 3^) 
 
 I LOVE love love Daukey, Karuta, Caseoh, 3FS and etc youtubers!! ^_^
