@@ -1,24 +1,28 @@
-# My short introduction..! 
-⋆˚࿔　Hi!! I am AJ, you can call me Aen, you can give me nicknames that are acceptable to me (^_-)
+# 
+<h1 align="center">・₊      .          <AJ   or  AEN>          ⸜⸜          ⸝⸝</h1>
 
-. ݁　　
+<p align="center">
+˗ˏˋ      mbti : infj,  Isfp    ˎˊ˗               ⋆               fictkin : prple, red.     
+</p>
 
-![image alt](7a98413dbf3b22a08914cb78f4064a36.gif) 
+---
 
-.𖥔 ݁ ˖　　I am from the Philippines! (South)  　　  07　　　 ๋ ㅤ 🎶　　　
+₊       ㅤㅤ        <3  
+・      Music, Drawing. 
 
-¬¬°⠀⠀⠀Also! Im not comfortable saying my age,sometimes people look down at me.
+・      Purple and Shiho
 
-ˎ　　
+・      Friends / Bestfriends (^_-) N more! 
 
-i speak Ilocano and English, but my English is kind of broken so im kinda learning? 
+---
 
- 🕯️
+₊      ㅤㅤ         ^_^  
+・      My fictkins
 
-INFJ! / ISFP! Which explains why im goofy and also quiet at the same time..　;　
+・      Someone matching my Energy. 
 
-　　﹒　　
+・      My Bestfriend  '',  ETC.
 
-: D⠀ . Purple / Red fictkin! (^ 3^) (from alanbecker) 
+---
 
-I LOVE love love Daukey, Karuta, Caseoh, 3FS and etc youtubers!! ^_^
+<p align="center">₊          archived          quietly          ₊</p>
