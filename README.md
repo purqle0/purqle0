@@ -2,7 +2,7 @@
 <h1 align="center">・₊      .          <AJ   or  AEN>          ⸜⸜          ⸝⸝</h1>
 
 <p align="center">
-˗ˏˋ      mbti : infj,  Isfp    ˎˊ˗               ⋆               fictkin : prple, red.     
+˗ˏˋ ㅤㅤㅤmbti : infj,  Isfp    ˎˊ˗ ㅤㅤㅤㅤㅤㅤㅤ   ೨ ㅤㅤㅤㅤㅤㅤㅤfictkin : prple, red.     
 </p>
 
 ---
@@ -21,8 +21,8 @@
 
 ・      Someone matching my Energy. 
 
-・      My Bestfriend  '',  ETC.
+・      My Bestfriend  kozzui / shiro <3<3
 
 ---
 
-<p align="center">₊          archived          quietly          ₊</p>
+<p align="center">₊ㅤㅤㅤㅤ  archivedㅤㅤㅤㅤquietly  ㅤㅤㅤㅤㅤㅤ₊</p>
