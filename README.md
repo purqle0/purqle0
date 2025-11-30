@@ -48,7 +48,7 @@ View my Strawpage! You can also friend req me in Discord! Anyway, Thank you for 
 
 Extra (s)  :
 
-   You might also find me in the mountains, to the deck, or to the library in PT! 
+   You might also find me in the mountains, near bakery, or to the caves! (both serv 1 and 2)
   
    I love my twin heh, i also love my friends ofc as mentioned. 
  
