@@ -48,10 +48,13 @@ View my Strawpage! You can also friend req me in Discord! Anyway, Thank you for 
 
  Discord  - .qxsuki
 
+
+
 Extra (s)  :
      
-<img src="Untitled108_20251130141648.png" width="250" align="right" style="margin-left: 6px;">
+<img src="Untitled108_20251130142420.png" width="250" align="right" style="margin-left: 6px;">
 
+<div style="font-size: 40px; text-align: center; line-height: 1.1;">
       
    You might also find me in the mountains, near bakery, or to the caves! (both serv 1 and 2)
   
@@ -64,7 +67,11 @@ Extra (s)  :
    as much as i hate to disturb your peace because of me, 
    My apologies. 
 
-  I speak Ilocano hheh
+  I speak Ilocano hheh  and of course English duhh
+
+  i guess that's all!!  ^^
+
+  
 
   
 
