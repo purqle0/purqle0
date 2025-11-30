@@ -28,12 +28,11 @@ Coming to me, i do not want em to hate me.
 
 
 
-<img src="Untitled106_20251130113222.png" width="270" align="left" style="margin-right: 6px;">
+<img src="Untitled109_20251130141917.png" width="270" align="left" style="margin-right: 6px;">
 
 <div style="font-size: 40px; text-align: center; line-height: 1.1;">
 
-I don't really want to talk about it right now. Change of topic
-Okay? I live in the Philippines! (Luzon.) And i am a minor. Don't be weird. 
+I live in the Philippines! (Luzon.) And i am a minor. Don't be weird. 
 
 FYI i do not like saying my age (only trusted ones) 
 
@@ -50,7 +49,10 @@ View my Strawpage! You can also friend req me in Discord! Anyway, Thank you for 
  Discord  - .qxsuki
 
 Extra (s)  :
+     
+<img src="Untitled108_20251130141648.png" width="250" align="right" style="margin-left: 6px;">
 
+      
    You might also find me in the mountains, near bakery, or to the caves! (both serv 1 and 2)
   
    I love my twin heh, i also love my friends ofc as mentioned. 
