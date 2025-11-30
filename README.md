@@ -13,13 +13,16 @@ Sei,
 Or
 Maxine! (i rarely get called by this lmfao) 
 
+I am.. 
+
+<img src="8281634890baf22a4864700494b1e6be.jpg" width="40">   and   <img src="1cfe28baa57c2a68ada3e2f244d0f75b.jpg" width="50">
+
 And of course! You can give me nicknames, as long it's not anything *inappropriate.*
 
 I like uh music, eating mint, sleeping, drawing ofc heh, MATCHINGGG, and etc..
 
 I love my friends / best friends so much, i do really love em, and i do not like them getting hurt, ESPECIALLY
-From me, let's take.. *Shiro / Kozzui*  for example, Hey if you're seeing this dude, im deeply sorry, i 
-Hope we can work this out and be happy again. 
+Coming to me, i do not want em to hate me. 
 
 
 
@@ -52,7 +55,7 @@ Extra (s)  :
   
    I love my twin heh, i also love my friends ofc as mentioned. 
  
-   I uhh love cats okay that all bye!!!! 
+   I uhh love cats 
 
 
     
