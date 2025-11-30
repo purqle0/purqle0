@@ -57,6 +57,14 @@ Extra (s)  :
  
    I uhh love cats 
 
+   I'll give you peace if you are upset, though..
+   Just know that I'll check up on you
+   as much as i hate to disturb your peace because of me, 
+   My apologies. 
+
+  I speak Ilocano hheh
+
+  
 
     
 </div>
