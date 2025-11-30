@@ -45,11 +45,6 @@ Sleep heh.
 I guess that's all Stranger / friend! If you're interested to know me more, you can just 
 View my Strawpage! You can also friend req me in Discord! Anyway, Thank you for reading ^_^
 
- Strawpage -  https://hehsup.straw.page
-
- Discord  - .qxsuki
-
-
 
 Extra (s)  :
      
